@@ -1,4 +1,4 @@
-### ⛄️ junhyeryun
+### 🍉 junhyeryun
 
 ###
 software-engineer (not yet)<br>
